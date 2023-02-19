@@ -1,1 +1,0 @@
-# minal-sheth.github.io
